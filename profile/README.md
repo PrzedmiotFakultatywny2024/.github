@@ -1,1 +1,1 @@
-## Organizacja na potrzeby przedmiotu fakultatynwego - sem. letni 2023/24
+## Organizacja na potrzeby przedmiotu fakultatywnego - sem. letni 2023/24
